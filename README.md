@@ -1,0 +1,2 @@
+# skola
+man patīk
